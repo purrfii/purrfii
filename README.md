@@ -8,4 +8,6 @@ ${\color{#b7b199}\text{im a minor + below 14}}$
 
 ${\color{#b7b199}\text{bmf pls i get lonely sometimes}}$
 
+${\color{#b7b199}\text{cuds are welcome except when i am w/friends}}$
+
 </div>
