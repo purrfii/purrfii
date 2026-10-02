@@ -15,6 +15,6 @@ ${\color{#7FA399}\text{cuds are welcome except when i am w/friends}}$
 
   　　
 
-<img width="735" height="773" alt="image" src="https://github.com/user-attachments/assets/14ecd0f1-e10d-4011-a1ee-7783ee7c5b7e" />
+<img width="735" height="773" alt="image" src="https://github.com/user-attachments/assets/7e60a8ec-dc98-4666-8a2d-2e308f079cc0" />
 
 </div>
