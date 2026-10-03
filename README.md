@@ -14,6 +14,8 @@ ${\color{#7FA399}\text{bmf pls i get lonely sometimes}}$
 
 ${\color{#7FA399}\text{cuds are welcome except when i am w/friends}}$
 
+${\color{#7FA399}\text{dont involve me into my friends drama, also basic dni}}$
+
 
   　　
 
