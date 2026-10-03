@@ -16,6 +16,8 @@ ${\color{#7FA399}\text{cuds are welcome except when i am w/friends}}$
 
 ${\color{#7FA399}\text{dont involve me into my friends drama, also basic dni}}$
 
+${\color{#7FA399}\text{sometimes i do dry texting, its usually because were not close or im nervous when around you}}$
+
 
   　　
 
