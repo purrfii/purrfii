@@ -16,7 +16,7 @@ ${\color{#5d7971}\text{cuds are welcome except when i am w/friends}}$
 
 ${\color{#5d7971}\text{dont involve me into my friends drama, also basic dni}}$
 
-${\color{#7FA399}\text{sometimes i do dry texting, its usually because were not close or im nervous when around you}}$
+${\color{#4b615b}\text{sometimes i do dry texting, its usually because were not close or im nervous when around you}}$
 
 ${\color{#1E3955}\text{꒰}}$  [wall](https://walloftext.co/omelette) ${\color{#7FA399}\text{♡}}$ [ata . very bright](https://ppathetic.atabook.org/) ${\color{#1E3955}\text{꒱}}$
 
