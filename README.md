@@ -12,9 +12,9 @@ ${\color{#7FA399}\text{im a minor + below 14}}$
 
 ${\color{#7FA399}\text{bmf pls i get lonely sometimes}}$
 
-${\color{#7FA399}\text{cuds are welcome except when i am w/friends}}$
+${\color{#5d7971}\text{cuds are welcome except when i am w/friends}}$
 
-${\color{#7FA399}\text{dont involve me into my friends drama, also basic dni}}$
+${\color{#5d7971}\text{dont involve me into my friends drama, also basic dni}}$
 
 ${\color{#7FA399}\text{sometimes i do dry texting, its usually because were not close or im nervous when around you}}$
 
