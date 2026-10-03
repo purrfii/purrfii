@@ -4,9 +4,9 @@
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=purrfii&label=fallen%20angels&labelColor=%231e3955&countColor=%237fa399&style=flat-square)
 
-${\color{#7FA399}\text{mentally unwell person, iwecaut/care at all times unless ur close}}$
+${\color{#9db3ad}\text{mentally unwell person, iwecaut/care at all times unless ur close}}$
 
-${\color{#7FA399}\text{i usually like being alone or with my close friends, i get nervous or overthink alot.}}$
+${\color{#9db3ad}\text{i usually like being alone or with my close friends, i get nervous or overthink alot.}}$
 
 ${\color{#7FA399}\text{im a minor + below 14}}$
 
