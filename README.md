@@ -1,5 +1,7 @@
 <div align="center">
 
+[wall](https://walloftext.co/omelette)
+
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Comic+Relief&duration=2400&pause=600&color=7FA399&center=true&width=435&lines=Do+you+believe+in+love+;%E2%80%95+at+first+sight%3F;Do+you+beileve+in+fate%3F;I+believe+in+good+things%2C;%E2%80%95+only+come+to+those+who+wait.)](https://git.io/typing-svg)
 
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=purrfii&label=fallen%20angels&labelColor=%231e3955&countColor=%237fa399&style=flat-square)
