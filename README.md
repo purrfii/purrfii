@@ -18,7 +18,7 @@ ${\color{#7FA399}\text{dont involve me into my friends drama, also basic dni}}$
 
 ${\color{#7FA399}\text{sometimes i do dry texting, its usually because were not close or im nervous when around you}}$
 
-${\color{#1E3955}\text{꒰}}$  [wall](https://walloftext.co/omelette) ${\color{#7FA399}\text{♡}}$ [ata . very bright](https://walloftext.co/omelette) ${\color{#1E3955}\text{꒱}}$
+${\color{#1E3955}\text{꒰}}$  [wall](https://walloftext.co/omelette) ${\color{#7FA399}\text{♡}}$ [ata . very bright](https://ppathetic.atabook.org/) ${\color{#1E3955}\text{꒱}}$
 
 
   　　
